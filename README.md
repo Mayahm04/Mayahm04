@@ -1,5 +1,5 @@
 # 💫 Hey , I AM MAYA :
-- 🌱 I’m currently learning web technologies<br><br>- 📝 I regularly write articles on Physics<br><br>- 💬 Ask me about Data and dance<br><br>- 📫 How to reach me mhammamouche27@gmail.com<br><br>- ⚡ Fun fact i love listening to old french music
+- 🌱 I’m currently learning web technologies<br><br>-  💬 Ask me about Data and dance<br><br>- 📫 How to reach me mhammamouche27@gmail.com<br><br>- ⚡ Fun fact i love listening to old french music
 
 
 ## 🌐 Socials:
